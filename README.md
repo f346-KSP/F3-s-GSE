@@ -21,3 +21,7 @@ Sneak peaks and development updates can be found in this discord server: https:/
 <img width="1920" height="1920" alt="glennpfp" src="https://github.com/user-attachments/assets/7e2632a9-1dae-4fe1-a5e2-6fcf0dea826d" />
 <img width="2560" height="1440" alt="Kerbal Space Program Screenshot 2025 10 23 - 23 46 57 59" src="https://github.com/user-attachments/assets/0f5c1061-7a1a-466b-acc0-c61bed403099" />
 <img width="2560" height="1440" alt="Kerbal Space Program Screenshot 2025 10 23 - 23 48 24 63" src="https://github.com/user-attachments/assets/7c6e01ce-ec02-4448-aec4-98e06c2bf8b5" />
+
+# Starship Pad B Coming Soon...
+<img width="1107" height="1452" alt="block3(4)" src="https://github.com/user-attachments/assets/f919d9a9-4dd9-42b3-95f3-f93c6b64fc64" />
+<img width="1507" height="2038" alt="block3(10)" src="https://github.com/user-attachments/assets/a2a27deb-c6fa-459e-8773-64717384b039" />
